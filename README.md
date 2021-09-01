@@ -8,5 +8,6 @@
 - 💬 Ask me about anything
 - 📫 How to reach me: monicahinga25
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ...I'm hilarious
+- 
 -->
